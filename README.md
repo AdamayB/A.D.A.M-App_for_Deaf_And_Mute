@@ -1,0 +1,1 @@
+# A.D.A.M-App_for_Deaf_And_Mute
